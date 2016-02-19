@@ -1,2 +1,2 @@
-# http-www.taksitlialsat.com-
+# http-www.taksitlialsat.com
 CANLI DESTEK
